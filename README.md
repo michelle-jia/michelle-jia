@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @michelle-jia
 - 👀 I’m interested in UI/UX design and research!
-- 📫 How to reach me - email: jiamichelle10@gmail.com
+- 📫 How to reach me - email: michellejia.ux@gmail.com
 - 😄 Pronouns: she/her
 
 <!---
